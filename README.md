@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @JrSanlord
+- 👀 I’m interested  em aprender mais e colocar em pratica esse conhecimento.
